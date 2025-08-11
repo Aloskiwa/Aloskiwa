@@ -1,3 +1,4 @@
+![snaplytics_converted_gif](https://github.com/user-attachments/assets/bb050ee3-1296-4cbd-b37f-0417e2132e81)
 
 
 <!--
