@@ -1,4 +1,4 @@
-![Uploading snaplytics_converted_gif.gif…]()
+
 
 <!--
 **Aloskiwa/Aloskiwa** is a ✨ _special_ ✨ repo
