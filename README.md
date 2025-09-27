@@ -1,4 +1,4 @@
-![snaplytics_converted_gif](https://i.pinimg.com/originals/39/09/47/390947ca036ccf7e9c39902e2ab3afc3.gif)(https://github.com/user-attachments/assets/bb050ee3-1296-4cbd-b37f-0417e2132e81)
+![snaplytics_converted_gif](https://i.pinimg.com/originals/39/09/47/390947ca036ccf7e9c39902e2ab3afc3.gif)
 
 
 <!--
