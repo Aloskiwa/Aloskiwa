@@ -1,4 +1,4 @@
-![snaplytics_converted_gif](https://i.pinimg.com/originals/39/09/47/390947ca036ccf7e9c39902e2ab3afc3.gif)
+![snaplytics_converted_gif](https://i.pinimg.com/originals/6c/c6/56/6cc656d1f44f7f304df63059eb8b5840.gif)
 
 
 <!--
